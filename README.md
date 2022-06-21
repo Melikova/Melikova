@@ -10,7 +10,9 @@
 
 🌱 New here. Because I was working on my own startup project www.learnrussianwithus.com. 
 
-👀 Looking for a remote work.
+👀 Looking for a remote work. 
+
+📫 Languages that I can speak : English, Russian, Turkish, French and a lttle German
 
 💞️ Liked this stat design, even it shows 0 for me ))
 
